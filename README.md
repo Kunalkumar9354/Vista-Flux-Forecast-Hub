@@ -22,3 +22,7 @@ Strategic Implications:
 •	Leverage consumer segment strength and cash on delivery preference.
 •	Optimize product offerings and channel strategies for higher revenue.
 •	Channel expansion and targeted marketing to further capitalize on trends.
+
+
+https://github.com/Kunalkumar9354/Vista-Flux-Forecast-Hub/assets/136789814/c2b9c2a5-5cc5-4464-be57-62568025cc77
+
