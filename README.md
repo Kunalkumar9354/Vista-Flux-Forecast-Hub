@@ -24,5 +24,13 @@ Strategic Implications:
 •	Channel expansion and targeted marketing to further capitalize on trends.
 
 
-https://github.com/Kunalkumar9354/Vista-Flux-Forecast-Hub/assets/136789814/c2b9c2a5-5cc5-4464-be57-62568025cc77
+
+
+https://github.com/Kunalkumar9354/Vista-Flux-Forecast-Hub/assets/136789814/8fb09ab6-ce39-4bfd-adac-671aa828d1f2
+
+
+
+1
+
+
 
