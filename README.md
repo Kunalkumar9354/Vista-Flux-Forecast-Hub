@@ -29,7 +29,11 @@ Strategic Implications:
 
 
 
-https://github.com/Kunalkumar9354/Vista-Flux-Forecast-Hub/assets/136789814/d1880ec5-d7b3-47ca-9dea-fa605bcf97e9
+
+https://github.com/Kunalkumar9354/Vista-Flux-Forecast-Hub/assets/136789814/f6fef9a0-22ed-4783-828a-18daa6272cff
+
+
+
 
 
 
